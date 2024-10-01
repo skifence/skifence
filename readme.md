@@ -9,6 +9,13 @@ I am corrently enrolled in my second year of  [Interactive Design - Web Design &
 - Lover of high quality UX design 😍
 - SEO nerd 🤓
 
+## Hobbies 📝
+1. Freestyle skiing ⛷️
+2. Golf 🏌️‍♂️
+3. Photography 📸
+4. Cycling 🚴‍♂️
+
 ## Contact 📲
 - [Linkedin](https://www.linkedin.com/in/finn-o-driscoll-5216402ab/)
 - [Instagram](https://www.instagram.com/finndris/)
+- [VSCO](https://vsco.co/finnod/gallery)
